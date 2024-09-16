@@ -1,0 +1,1 @@
+# Qlik-Sense-Data-Architect-Certification-QSDA2024-Exam-Questions
